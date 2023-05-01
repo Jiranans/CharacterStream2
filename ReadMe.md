@@ -1,1 +1,1 @@
-65130500010 Jiranan Yenlab
+65130500010 Jiranan Yenlab ย้ายกลุ่ม มาเรียนกลุ่ม 2 
